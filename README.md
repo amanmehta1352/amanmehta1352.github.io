@@ -1,1 +1,1 @@
-# amanmehta1352.github.io.
+# amanmehta1352.github.io
